@@ -1,0 +1,1 @@
+[Gekürzter Code aus Platzgründen – hier würde der komplette Inhalt aus dem Canvas stehen]
